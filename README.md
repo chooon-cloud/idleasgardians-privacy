@@ -102,4 +102,4 @@ Changes will be posted on this page with a new “Last updated” date.
 If you have questions about this Privacy Policy, please contact:
 
 chooongamedev2781
-Email: chunsworkmailbox@gmail.com
+Email: chooongamedev2781@gmail.com
